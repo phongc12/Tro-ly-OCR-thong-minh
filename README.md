@@ -1,0 +1,1 @@
+# Tr-l-OCR-th-ng-minh
